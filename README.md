@@ -1,0 +1,1 @@
+# Tenth-grade-compulsory-math-mind-map
